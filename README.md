@@ -1,16 +1,16 @@
-### Hi there 👋
+# Sejam bem vindos ao meu mundo❤️👋 
+Eu sou a Iasmim Alves, aluna no Instituto Federal do Tocantins - IFTO. cursando o 2° ano de informática.
 
-<!--
-**Izzyalves/Izzyalves** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+### O que eu gosto de fazer: 
+*📍eu amo cozinhar* 
 
-Here are some ideas to get you started:
+*📍desenhar* 
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+*📍gosto bastante de ler* 
+
+*📍gosto de estudar História* 
+
+*📍e dormir ksksk* 
+
+### *meus esportes favoritos:* 
+*📌 capoeira* *📌 vôlei* *📌 karatê*
